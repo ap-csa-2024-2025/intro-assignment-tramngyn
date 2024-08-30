@@ -13,8 +13,8 @@
 
 ## About Me
 Answer the questions below
-* Something interesting about me is
-* Ask Mr. Vu anything:
+* Something interesting about me is I have a huge obsession with milk tea and hotpot.
+* Ask Mr. Vu anything: 
 * List your sports and extracurriculars you participate in
 
 ## HW
