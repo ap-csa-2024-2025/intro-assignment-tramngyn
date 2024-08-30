@@ -14,8 +14,8 @@
 ## About Me
 Answer the questions below
 * Something interesting about me is I have a huge obsession with milk tea and hotpot.
-* Ask Mr. Vu anything: 
-* List your sports and extracurriculars you participate in
+* Ask Mr. Vu anything: Do you like your hair?
+* List your sports and extracurriculars you participate in: VACC, Hope-Hearted, Link Crew, Peer Tutor, Upward Bound 
 
 ## HW
 Tram Nguyen
